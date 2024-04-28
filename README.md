@@ -9,7 +9,6 @@
 
 **<font color="green">КОНТАКТНАЯ ИНФОРМАЦИЯ</font>**
 - **Телефон:** +7 993 139 48 50
--              +1 69 (WhatsApp)
 - **Telegram:** @noumagus
 - **Электронная почта:** noumagus@gmail.com
 
